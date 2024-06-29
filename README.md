@@ -1,3 +1,3 @@
 # Multiple-Text-Typing-Animation
-i areat this 
-Follow This Channel
+i creat this project.
+Follow This Channel.
